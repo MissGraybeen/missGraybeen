@@ -1,1 +1,1 @@
-## “Human morality is an aesthetic issue”.
+“Human morality is an aesthetic issue”.

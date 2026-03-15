@@ -1,1 +1,1 @@
-## *Miss Graybeen* is going to get you.
+## “Human morality is an aesthetic issue”.
